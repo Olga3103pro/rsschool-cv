@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Olga3103pro.github.io/rsschool-cv/cv
